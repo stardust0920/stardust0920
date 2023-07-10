@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi I'm genius
 
 <!--
 **stardust0920/stardust0920** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
